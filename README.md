@@ -5,3 +5,9 @@ Some things about me
   2. Mixer car
   3. Excavating machinery
   4. Bulldozer
+
+- I like to play with older children
+
+- I have a brother
+
+- I still like having a sister, so it's more fun.
